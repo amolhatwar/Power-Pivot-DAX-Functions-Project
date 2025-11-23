@@ -22,7 +22,7 @@ I'm excited to share a project where I delved into **Microsoft Excel's Power Piv
 
 ---
 
-🎥 **Video Tutorial:** https://youtu.be/8tih2EZBERE
+🎥 **Video Tutorial:** https://youtu.be/oe1Kyklvq0Q
 
 ---
 
